@@ -1,1 +1,0 @@
-# beurshandelaren-afschieten-in-nederkand
